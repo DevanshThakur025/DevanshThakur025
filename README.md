@@ -12,7 +12,7 @@ I'm a front-end developer with a passion for creating engaging and user-friendly
 
 ## Connect With Me
 
-- Instagram:**[@maithakurhun](instagram)**
+- Instagram:**[@maithakurhun](https://www.instagram.com/maithakurhun/?hl=en)**
 
 ##
 
